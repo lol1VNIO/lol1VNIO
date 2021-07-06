@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lol1VNIO
-- 👀 I’m interested in anime
+- 👀 I’m interested in anime & h
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: don't
